@@ -1,2 +1,2 @@
-# ZevnikProjekti-
+#Projekti-
 evo me učitl
